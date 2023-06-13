@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on Fantasy-PL<br>👯 I’m looking to collaborate on Fantasy-PL<br>🌱 I’m currently learning Deep Learning<br>
+🔭 I’m currently Studying BTech. in AI <br>👯 I’m looking to collaborate on Fantasy-PL<br>🌱 I’m currently learning Deep Learning<br>
 
 
 ## 🌐 Socials:
